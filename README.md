@@ -10,3 +10,6 @@ Meu nome é Emilly Sarah Lira Batista
 ### Voce pode entrar em contato comigo 📫
 
 emilly.lira.batista@escola.pr.gov.br
+
+
+![](https://media.tenor.com/xyftqV6FPvgAAAAi/minions.gif)
